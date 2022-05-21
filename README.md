@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prosper-Tshuma
-- 👀 I’m interested in anime,gaming and code
+- 👀 I’m interested in anime,art,writing,gaming and code
 - 💞️ I’m looking to collaborate on variety of projects
 - 📫 How to reach me https://www.instagram.com/i_am_executioner/
 <!---
